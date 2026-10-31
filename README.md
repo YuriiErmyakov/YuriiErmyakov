@@ -1,4 +1,4 @@
-# Привет, я Юрий 👋 · Hi, I'm Yuriy
+# Привет, я Юрий 👋 · Hi, I'm Yurii
 
 **AI-режиссёр и моушн-дизайнер** · *AI director & motion designer*
 
